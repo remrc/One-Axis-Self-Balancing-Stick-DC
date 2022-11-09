@@ -16,3 +16,7 @@ Send p- (or p-p-p-p-p-p-p-) for decrease K1.
 More about this:
 
 https://youtu.be/wacuNeEO2zE
+
+This video may also help:
+
+https://youtu.be/Nkm9PoihZOI
